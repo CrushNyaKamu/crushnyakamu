@@ -68,7 +68,7 @@ FUNFACT😜| SUKA ANAK KECIL DAN KUCING
 [![Github](https://img.shields.io/badge/-Github-000?style=flat&logo=Github&logoColor=white)](https://github.com/CrushNyaKamu)
 [![Instagram](https://img.shields.io/badge/-Instagram-c13584?style=flat&labelColor=c13584&logo=instagram&logoColor=white)](https://www.instagram.com/Wkwk_Rsyd)
 [![Gmail](https://img.shields.io/badge/-Gmail-c14438?style=flat&logo=Gmail&logoColor=white)](gclooney517@gmail.com)
-[![Telegram](https://img.shields.io/badge/-Telegram-0088CC?style=flat&logo=Telegram&logoColor=white)](t.me/tehmanisangettt)
+[![Telegram](https://img.shields.io/badge/-Telegram-0088CC?style=flat&logo=Telegram&logoColor=white)](https://t.me/tehmanisangettt)
 
 ### Thanks To :
 <b>
